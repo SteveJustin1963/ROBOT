@@ -1,9 +1,9 @@
 # tec-ROBOT
 
 
-listen to this 
+listen to the mp3
 
-https://github.com/SteveJustin1963/ROBOT/blob/master/A.W.E.S.O.M.-O%E2%80%99S%20BIG%20MISTAKE.mp3
+
 
 
  
